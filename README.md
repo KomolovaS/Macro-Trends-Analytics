@@ -9,4 +9,4 @@
 - Казахстан 🇰🇿
 - Азербайджан 🇦🇿
 - Узбекистан 🇺🇿
-![image](https://github.com/user-attachments/assets/383629b2-c652-4f68-967c-7380cefbc413)
+![image](https://github.com/user-attachments/assets/a701695b-1f66-4164-9e0e-04dc30e07a8d)
